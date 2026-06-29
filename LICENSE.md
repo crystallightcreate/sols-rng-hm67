@@ -1,4 +1,4 @@
-# 
+# anime card clash Scripts no-ban is the best anime card clash Script, featuring undetectable and speed. Safe and powerful for all your needs.
 
 
 
